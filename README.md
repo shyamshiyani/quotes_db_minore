@@ -98,4 +98,16 @@ Quotes can be copied to the clipboard for easy pasting.
 ---
 ## UI:
 
+![1](https://github.com/user-attachments/assets/f3b30474-7e2d-4685-b043-f74f95a86220)
+![2](https://github.com/user-attachments/assets/456178b1-2bd5-4099-959e-58eee643b96b)
+![3](https://github.com/user-attachments/assets/7320e250-ed86-4f65-8c16-d48856d19dbb)
+![4](https://github.com/user-attachments/assets/763f875d-7af1-4184-a1c5-d8d1f5a09825)
+![5](https://github.com/user-attachments/assets/e02b3d6d-a837-4f7c-8ca7-5ce3598217da)
+![6](https://github.com/user-attachments/assets/5baa9b58-1646-47ce-93b4-330883dbba18)
+![7](https://github.com/user-attachments/assets/98416180-bf85-4646-95ec-17108d6fb449)
+![8](https://github.com/user-attachments/assets/0b7981cc-e4e8-41fd-8e88-e9f1d7925168)
 ## video
+https://github.com/user-attachments/assets/34d0644b-7948-4c51-bd78-a0940ebf4b6f
+
+
+
